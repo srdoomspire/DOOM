@@ -1,3 +1,5 @@
+$${\color{#ff0000}YOU'RE󠀠󠀠󠀠⠀ THE⠀ PRETENDER⠀ !}$$
+$${\color{#6c0000}WHAT⠀ IF⠀ I⠀ SAY⠀ I⠀ WILL⠀ NEVER⠀ SURRENDER⠀ ?!}$$
 <p align="center"/>
     <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=49efbe4c"/>
 <div></div>
@@ -26,18 +28,18 @@
 </p>
   </div>
   <p align="center">
-<img src="https://files.catbox.moe/fohzdw.webp"/>  call us 𝗱𝗼𝗼𝗺, sol or nico. <img src="https://files.catbox.moe/11ao19.webp"/>
+<img src="https://files.catbox.moe/fohzdw.webp"/>  call us $${\color{#ff0000}doom}$$, sol or nico. <img src="https://files.catbox.moe/11ao19.webp"/>
   
   <div>
     
 
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery263/49d4675c.gif?v=49efbe4c">  we're bodily 𝟭𝟲 <img src="https://gifcity.carrd.co/assets/images/gallery92/995235b1.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery263/49d4675c.gif?v=49efbe4c">  we're bodily $${\color{#ff0000}16}$$ <img src="https://gifcity.carrd.co/assets/images/gallery92/995235b1.gif?v=49efbe4c">
     
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery146/cd9f6fc6.gif?v=49efbe4c">  alternatively, if you're coming from pt you can call us by whatever we are there. <img src="https://gifcity.carrd.co/assets/images/gallery92/e7af8c6b.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery146/cd9f6fc6.gif?v=49efbe4c">  alternatively, if you're coming from $${\color{#ff0000}pt}$$ you can call us by whatever we are there. <img src="https://gifcity.carrd.co/assets/images/gallery92/e7af8c6b.gif?v=49efbe4c">
 </p>
 
   <div>
@@ -47,7 +49,7 @@
 </p>
   <div>
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery11/3a2bc8f8.gif?v=49efbe4c"> 𝘄𝗲 𝗮𝗿𝗲 𝗮 𝘀𝘆𝘀𝘁𝗲𝗺 {𝗼𝘀𝗱𝗱-𝟭𝗯} <img src="https://gifcity.carrd.co/assets/images/gallery91/11ba7cd9.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery11/3a2bc8f8.gif?v=49efbe4c"> 𝘄𝗲 𝗮𝗿𝗲 𝗮 𝘀𝘆𝘀𝘁𝗲𝗺 $${\color{#ff0000}osdd-1b}$$ <img src="https://gifcity.carrd.co/assets/images/gallery91/11ba7cd9.gif?v=49efbe4c">
   
   <div>
     <p align="center">
@@ -71,14 +73,14 @@
     
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery31/a066e79a.gif?v=49efbe4c">  43k+ ON TIKTOK | 10k+ ON YT <img src="https://gifcity.carrd.co/assets/images/gallery31/77b9d330.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery31/a066e79a.gif?v=49efbe4c">  43k+ ON $${\color{#ff0000}TIKTOK}$$ | 10k+ ON $${\color{#ff0000}YT}$$ <img src="https://gifcity.carrd.co/assets/images/gallery31/77b9d330.gif?v=49efbe4c">
 
   <div>
    
 </p>
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery92/f350952d.gif?v=49efbe4c">  𝗗𝗡𝗜: proshippers, 13>, basic criteria <img src="https://gifcity.carrd.co/assets/images/gallery11/225f0b76.png?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery92/f350952d.gif?v=49efbe4c">  $${\color{#ff0000}DNI}$$: proshippers, 13>, basic criteria <img src="https://gifcity.carrd.co/assets/images/gallery11/225f0b76.png?v=49efbe4c">
   </p>
 
 <p align="center">
@@ -99,7 +101,7 @@
     
   <div>
     <p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery92/4c2c7770.gif?v=49efbe4c">  do not attempt to roleplay with us. our skins aren't "cosplays". they are alters, we will get uncomfortable & block/hide you <img src="https://gifcity.carrd.co/assets/images/gallery92/5c27a29c.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery92/4c2c7770.gif?v=49efbe4c">  do $${\color{#ff0000}not}$$ attempt to roleplay with us. our skins aren't "cosplays". they are alters, we will get uncomfortable & block/hide you <img src="https://gifcity.carrd.co/assets/images/gallery92/5c27a29c.gif?v=49efbe4c">
   </p>
 
   <div>
@@ -117,19 +119,19 @@
  𝗫𝗧𝗥𝗔. 𝗜𝗡𝗙𝗢 [𝟭]
  <div>
    <p align="center">
-<img src="https://files.catbox.moe/lflx25.webp"/> we heavily associate ourselves w/ 𝟳𝗻𝟳, 𝗲𝘅𝗽𝘂𝗻𝗴𝗲𝗱, 𝗱𝗲𝗶𝗺𝗼𝘀, 𝘁𝗿𝗶𝗰𝗸𝘆, 𝗶𝗻𝗳𝗲𝗰𝘁𝗲𝗱, 𝗰𝗵𝗮𝗻𝗰𝗲 & 𝘁𝗲𝗻𝗻𝗮. <img src="https://gifcity.carrd.co/assets/images/gallery151/e0ca8122.gif?v=49efbe4c">
+<img src="https://files.catbox.moe/lflx25.webp"/> we heavily associate ourselves w/ $${\color{#ff0000}7n7}$$, $${\color{#9a0000}chance}$$, $${\color{#5b0000}deimos}$$, $${\color{#640000}tricky}$$, $${\color{#9a0000}tenna}$$ & $${\color{#ff0000}infected}$$ <img  src="https://gifcity.carrd.co/assets/images/gallery151/e0ca8122.gif?v=49efbe4c">
    
  <div>
    <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery03/1ee1c3c7.png?v=49efbe4c"> we don't block cosplayers, systems or roleplayers, just kins & irls. ONLY if they make it their entire personality. <img src="https://gifcity.carrd.co/assets/images/gallery01/9e656c08.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery03/1ee1c3c7.png?v=49efbe4c"> we don't block cosplayers, systems or roleplayers, just kins & irls. $${\color{#ff0000}ONLY}$$ if they make it their entire personality. <img src="https://gifcity.carrd.co/assets/images/gallery01/9e656c08.gif?v=49efbe4c">
 
  <div>
    <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery262/17a7d26c.gif?v=49efbe4c"> 𝘄𝗲 𝗱𝗼 𝗻𝗼𝘁 𝗶𝗻𝘃𝗮𝗹𝗶𝗱𝗮𝘁𝗲 𝗼𝘁𝗵𝗲𝗿𝘀 𝗶𝗱𝗲𝗻𝘁𝗶𝘁𝗶𝗲𝘀, 𝗶𝘁'𝗱 𝗷𝘂𝘀𝘁 𝗯𝗲 𝗽𝗿𝗲𝗳𝗲𝗿𝗿𝗲𝗱 𝗳𝗼𝗿 𝗢𝗨𝗥 𝗺𝗲𝗻𝘁𝗮𝗹 𝘀𝘁𝗮𝘁𝗲 𝗶𝗳 𝘆𝗼𝘂 𝗸𝗲𝗽𝘁 𝘆𝗼𝘂𝗿 𝗱𝗶𝘀𝘁𝗮𝗻𝗰𝗲. <img src="https://gifcity.carrd.co/assets/images/gallery306/9f931aaa.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery262/17a7d26c.gif?v=49efbe4c"> 𝘄𝗲 𝗱𝗼 $${\color{#ff0000}not}$$ 𝗶𝗻𝘃𝗮𝗹𝗶𝗱𝗮𝘁𝗲 𝗼𝘁𝗵𝗲𝗿𝘀 𝗶𝗱𝗲𝗻𝘁𝗶𝘁𝗶𝗲𝘀, 𝗶𝘁'𝗱 𝗷𝘂𝘀𝘁 𝗯𝗲 𝗽𝗿𝗲𝗳𝗲𝗿𝗿𝗲𝗱 𝗳𝗼𝗿 𝗢𝗨𝗥 𝗺𝗲𝗻𝘁𝗮𝗹 𝘀𝘁𝗮𝘁𝗲 𝗶𝗳 𝘆𝗼𝘂 𝗸𝗲𝗽𝘁 𝘆𝗼𝘂𝗿 𝗱𝗶𝘀𝘁𝗮𝗻𝗰𝗲. <img src="https://gifcity.carrd.co/assets/images/gallery306/9f931aaa.gif?v=49efbe4c">
 
   <div>
     <p align="center">
- <img src="https://files.catbox.moe/iiuhv7.webp"/>  eng/rus <img src="https://gifcity.carrd.co/assets/images/gallery13/72538ea9.gif?v=49efbe4c">
+ <img src="https://files.catbox.moe/iiuhv7.webp"/>  $${\color{#ff0000}eng}$$/rus <img src="https://gifcity.carrd.co/assets/images/gallery13/72538ea9.gif?v=49efbe4c">
  </p>
 <p align="center">
     <img src="https://files.catbox.moe/4nymbn.webp"/><img src="https://files.catbox.moe/362kxo.webp"/><img src="https://files.catbox.moe/d8ekum.webp"/><img src="https://files.catbox.moe/urueio.jpg"/>
@@ -148,15 +150,15 @@
    
 <div>
   <p align="center">
-<img src="https://files.catbox.moe/0dvz1j.gif"/> we LOVE love weaponry & tornadoes but our #1 interest as of right now is storm-chasing. <img src="https://gifcity.carrd.co/assets/images/gallery272/0759daaa.gif?v=49efbe4c">
+<img src="https://files.catbox.moe/0dvz1j.gif"/> we LOVE love weaponry & $${\color{#ff0000}tornadoes}$$ but our #1 interest as of right now is storm-chasing. <img src="https://gifcity.carrd.co/assets/images/gallery272/0759daaa.gif?v=49efbe4c">
   
 <div>
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery13/3df1e8a9.gif?v=49efbe4c"> fandoms we're in: 𝗱𝗶𝗲 𝗼𝗳 𝗱𝗲𝗮𝘁𝗵, 𝗳𝗻𝗳, 𝗱𝗲𝗹𝘁𝗮𝗿𝘂𝗻𝗲/𝘂𝗻𝗱𝗲𝗿𝘁𝗮𝗹𝗲, 𝗺𝗮𝗱𝗻𝗲𝘀𝘀 𝗰𝗼𝗺𝗯𝗮𝘁 + 𝗺𝗼𝗿𝗲 (osc) <img src="https://gifcity.carrd.co/assets/images/gallery263/ea0fc7e1.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery13/3df1e8a9.gif?v=49efbe4c"> fandoms we're in: 𝗱𝗶𝗲 𝗼𝗳 𝗱𝗲𝗮𝘁𝗵, 𝗳𝗻𝗳, 𝗱𝗲𝗹𝘁𝗮𝗿𝘂𝗻𝗲/𝘂𝗻𝗱𝗲𝗿𝘁𝗮𝗹𝗲, 𝗺𝗮𝗱𝗻𝗲𝘀𝘀 𝗰𝗼𝗺𝗯𝗮𝘁 + 𝗺𝗼𝗿𝗲 <img src="https://gifcity.carrd.co/assets/images/gallery263/ea0fc7e1.gif?v=49efbe4c">
   
 <div>
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery263/7dc55648.gif?v=49efbe4c"> BARELY into forsaken, only liking a select few of characters & not the game itself. <img src="https://gifcity.carrd.co/assets/images/gallery01/8e05c4a7.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery263/7dc55648.gif?v=49efbe4c"> $${\color{#ff0000}BARELY}$$ into forsaken, only liking a select few of characters & not the game itself. <img src="https://gifcity.carrd.co/assets/images/gallery01/8e05c4a7.gif?v=49efbe4c">
 </p>
   
   <div>
@@ -175,7 +177,7 @@
 
 <div>
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery01/cb80b1a1.png?v=49efbe4c"> js don't be a weirdo <img src="https://gifcity.carrd.co/assets/images/gallery01/dd63e244.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery01/cb80b1a1.png?v=49efbe4c"> js don't be a $${\color{#ff0000}weirdo}$$ <img src="https://gifcity.carrd.co/assets/images/gallery01/dd63e244.gif?v=49efbe4c">
 </p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery25/cccbc4b9.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery25/dc5ad13b.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery25/6ded2033.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery25/6111d3c7.gif?v=49efbe4c"/>

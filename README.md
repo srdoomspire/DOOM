@@ -1,5 +1,5 @@
 $${\color{#ff0000}YOU'RE󠀠󠀠󠀠⠀ THE⠀ PRETENDER⠀ !}$$
-$${\color{#6c0000}WHAT⠀ IF⠀ I⠀ SAY⠀ I⠀ WILL⠀ NEVER⠀ SURRENDER⠀ ?!}$$
+$${\color{#ffffff}WHAT⠀ IF⠀ I⠀ SAY⠀ I⠀ WILL⠀ NEVER⠀ SURRENDER⠀ ?!}$$
 <p align="center"/>
     <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=49efbe4c"/>
 <div></div>

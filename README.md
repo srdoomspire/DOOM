@@ -35,11 +35,11 @@ $${\color{#6c0000}WHAT⠀ IF⠀ I⠀ SAY⠀ I⠀ WILL⠀ NEVER⠀ SURRENDER⠀ ?
 
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery263/49d4675c.gif?v=49efbe4c">  we're bodily $${\color{#ff0000}16}$$ <img src="https://gifcity.carrd.co/assets/images/gallery92/995235b1.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery263/49d4675c.gif?v=49efbe4c">  we're bodily 16y <img src="https://gifcity.carrd.co/assets/images/gallery92/995235b1.gif?v=49efbe4c">
     
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery146/cd9f6fc6.gif?v=49efbe4c">  alternatively, if you're coming from $${\color{#ff0000}pt}$$ you can call us by whatever we are there. <img src="https://gifcity.carrd.co/assets/images/gallery92/e7af8c6b.gif?v=49efbe4c">
+<img src="https://gifcity.carrd.co/assets/images/gallery146/cd9f6fc6.gif?v=49efbe4c">  alternatively, if you're coming from ponytown you can call us by whatever we are there. <img src="https://gifcity.carrd.co/assets/images/gallery92/e7af8c6b.gif?v=49efbe4c">
 </p>
 
   <div>

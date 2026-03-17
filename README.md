@@ -60,7 +60,7 @@
   <div>
     
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/797632960224428042/1481979972603219988/Untitled260_20260313073911.png?ex=69b548e7&is=69b3f767&hm=5308c2b742298d8aca60eb56a124591233e31473a9abee6781e04eb60e2c4fd2&=&format=webp&quality=lossless&width=919&height=463" />
+  <img src="https://media.discordapp.net/attachments/797632960224428042/1483455411523948675/Untitled270_20260317092205.png?ex=69baa703&is=69b95583&hm=f6680a91f61c6ef4f5ca6ce1c58311e0a30e0b34f5724e5a2f8aa3c77ad208fe&=&format=webp&quality=lossless&width=920&height=488" />
   <div>
     <p align="center">
   <img src="https://camo.githubusercontent.com/23e812adb92753a9f17a31a013e623b4656450b9e5e0698463e922be9bb3686d/68747470733a2f2f66696c65732e636174626f782e6d6f652f376e363930312e676966"/><img src="https://files.catbox.moe/qvwvoe.gif"/><img src="https://files.catbox.moe/z94axx.webp"/><img src="https://files.catbox.moe/mildgu.png"/><img src="https://files.catbox.moe/4g4b06.png"/>

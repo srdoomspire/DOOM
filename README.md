@@ -7,7 +7,7 @@ $${\color{#ffffff}WHAT⠀ IF⠀ I⠀ SAY⠀ I⠀ WILL⠀ NEVER⠀ SURRENDER⠀ ?
   <img src="https://gifcity.carrd.co/assets/images/gallery27/afefdf7c.png?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery27/1b894533.jpg?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery29/f05e67e8.png?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery32/97fbf2f8.jpg?v=49efbe4c"/>
     <div>
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/797632960224428042/1481981442454982725/Untitled264_20260313074335.png?ex=69b54a45&is=69b3f8c5&hm=02e848a5c5eb9491d6fa4fa9c5f30c9820879ee10cb2d5c8301c38d3dc468daa&=&format=webp&quality=lossless&width=920&height=414"/>
+  <img src="https://media.discordapp.net/attachments/797632960224428042/1483449736764850289/Untitled268_20260317085933.png?ex=69baa1ba&is=69b9503a&hm=b991de2a3bd1308bc1cfcda1d08c9fb5f16e9ace20b409e61151c0c8dcd3f8b3&=&format=webp&quality=lossless&width=688&height=369"/>
 </p>
 
   <div>

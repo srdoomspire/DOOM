@@ -1,11 +1,11 @@
 <p align="center"/>
     <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=49efbe4c"/>
-<div></div>
+<div>
 <p align="center">
   <img src="https://gifcity.carrd.co/assets/images/gallery27/afefdf7c.png?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery27/1b894533.jpg?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery29/f05e67e8.png?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery32/97fbf2f8.jpg?v=49efbe4c"/>
     <div>
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/797632960224428042/1483449736764850289/Untitled268_20260317085933.png?ex=69baa1ba&is=69b9503a&hm=b991de2a3bd1308bc1cfcda1d08c9fb5f16e9ace20b409e61151c0c8dcd3f8b3&=&format=webp&quality=lossless&width=688&height=369"/>
+  <img src="https://files.catbox.moe/kafjot.png"/>
 </p>
 
   <div>
@@ -60,7 +60,7 @@
   <div>
     
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/797632960224428042/1483455411523948675/Untitled270_20260317092205.png?ex=69baa703&is=69b95583&hm=f6680a91f61c6ef4f5ca6ce1c58311e0a30e0b34f5724e5a2f8aa3c77ad208fe&=&format=webp&quality=lossless&width=920&height=488" />
+  <img src="https://files.catbox.moe/932ph8.png" />
   <div>
     <p align="center">
   <img src="https://camo.githubusercontent.com/23e812adb92753a9f17a31a013e623b4656450b9e5e0698463e922be9bb3686d/68747470733a2f2f66696c65732e636174626f782e6d6f652f376e363930312e676966"/><img src="https://files.catbox.moe/qvwvoe.gif"/><img src="https://files.catbox.moe/z94axx.webp"/><img src="https://files.catbox.moe/mildgu.png"/><img src="https://files.catbox.moe/4g4b06.png"/>

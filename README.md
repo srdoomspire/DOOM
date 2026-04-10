@@ -1,23 +1,26 @@
 <p align="center"/>
-    <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=49efbe4c"/>
+    <img src="https://64.media.tumblr.com/a954ff6b2d8742d0c53f2d2c5d4ebfc0/de79baa0a4f7ad1d-63/s1280x1920/ed64d76e06a2df16c34fa149eb5f7f5caed76fea.gifv"/>
 <div>
 <p align="center">
-  <img src="https://gifcity.carrd.co/assets/images/gallery27/afefdf7c.png?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery27/1b894533.jpg?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery29/f05e67e8.png?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery32/97fbf2f8.jpg?v=49efbe4c"/>
+  <img src="https://64.media.tumblr.com/c295fc8074f85791d12efe8394ff968d/c2069aa5412e213f-b7/s250x400/4abfb79cab1d2d5c31943f6087bec1fa8a8b7a15.gifv"/><img src="https://64.media.tumblr.com/e31347867900bd1425c3e716c7d64bbd/10217887d0606e56-7c/s250x400/cce6bcedb336ccc407b40008269bdf45590b57a2.gifv"/><img src="https://64.media.tumblr.com/4bb489078ad23f1ea78df92e5e18c595/55a2bceb5082474d-94/s250x400/a4c3d0f7a36556b82190a3fef11575adaa3444ad.gifv"/>
+    <p align="center"/>
+    <img src="https://64.media.tumblr.com/9a4503ad9f0f3f934988e98b70421a37/de79baa0a4f7ad1d-5f/s1280x1920/1414a149ca9d65a804440e1319caafa11b42b445.gifv"/>
+<div>
     <div>
 <p align="center">
-  <img src="https://files.catbox.moe/kafjot.png"/>
+  <img src="https://cdn.discordapp.com/attachments/797632960224428042/1492132274483757167/ezgif-1b27bc1f144a1e9e.gif?ex=69da37f8&is=69d8e678&hm=e321c3b903f566c22eac3f983d98913d47a2d9f76524a22dddf4189e0a4b99fb&"/>
 </p>
 
   <div>
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery13/3cb96bb9.gif?v=49efbe4c"> i fb & follow people if i think your github looks cool : ] <img src="https://gifcity.carrd.co/assets/images/gallery310/c07d59e3.gif?v=49efbe4c">
+we fb & follow people if we think your github looks cool
 </div>
 </p>
       <div>
           <p align="center">
-              <img src="https://files.catbox.moe/8nmdg1.webp"/><img src="https://files.catbox.moe/top3n2.webp"/><img src="https://files.catbox.moe/2uno60.webp"/><img src="https://files.catbox.moe/m8mbf4.webp"/>
+              <img src="https://gifcity.carrd.co/assets/images/gallery23/1646719d.gif?v=20a350bf"/><img src="https://gifcity.carrd.co/assets/images/gallery23/8f96bf09.gif?v=20a350bf"/><img src="https://gifcity.carrd.co/assets/images/gallery23/9029eb89.gif?v=20a350bf"/><img src="https://gifcity.carrd.co/assets/images/gallery23/e5475b61.gif?v=20a350bf"/>
 <p align="center">
-  <img src="https://i.postimg.cc/sXkJV8rv/15.gif"/><img src="https://media.tenor.com/Eu3tNtgbeK0AAAAi/spamtenna-spamton.gif"/><img src="https://64.media.tumblr.com/603280bb25174fe4ab92aa165ef7d0a8/321aa268678c99b9-ff/s100x200/d28fa8f73c9bd03444110b6b310f5a53cc2bd5eb.gifv"/>
+  <img src="https://sillyblinkies.nekoweb.org/stamps/17776stamp.png"/><img src="https://media.discordapp.net/attachments/1355710805856882690/1491804311632482364/whimsyandcuriosity-17776.gif?ex=69d9af48&is=69d85dc8&hm=8ec69299429d69369f1b794e3053791c9312743708fea7d716a1635c643e4c84&=&width=623&height=350"/><img src="https://sillyblinkies.nekoweb.org/stamps/20020stamp.png"/>
 </p>
     <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=fqnchntjdadqds28t9gpr09oy&redirect=true">
@@ -26,89 +29,89 @@
 </p>
   </div>
   <p align="center">
-<img src="https://files.catbox.moe/fohzdw.webp"/>  call us $${\color{#ff0000}doom}$$, sol or nico. <img src="https://files.catbox.moe/11ao19.webp"/>
+call us doom/JUICE/nico, or sol.
   
   <div>
     
 
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery263/49d4675c.gif?v=49efbe4c">  we're bodily 16y <img src="https://gifcity.carrd.co/assets/images/gallery92/995235b1.gif?v=49efbe4c">
+bodily 16
     
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery146/cd9f6fc6.gif?v=49efbe4c">  alternatively, if you're coming from ponytown you can call us by whatever we are there. <img src="https://gifcity.carrd.co/assets/images/gallery92/e7af8c6b.gif?v=49efbe4c">
+srdoomspire on (most) platforms
 </p>
 
   <div>
     
 <p align="center">
-  <img src="https://files.catbox.moe/81nl53.gif" />  <img src="https://64.media.tumblr.com/3693e50024cde24ab3e61e7a250e581d/169ca972d2c0eb35-8e/s250x400/3e711656edbcfc8b729e815e43a9910861fa1129.gif" /> <img src="https://files.catbox.moe/ml1q0p.gif"/>
+  <img src="https://gifcity.carrd.co/assets/images/gallery59/5b292a85.png?v=20a350bf" />  <img src="https://gifcity.carrd.co/assets/images/gallery59/6588a2ab.gif?v=20a350bf" /> <img src="https://gifcity.carrd.co/assets/images/gallery60/9fbc1e5f.gif?v=20a350bf"/>
 </p>
   <div>
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery11/3a2bc8f8.gif?v=49efbe4c"> 𝘄𝗲 𝗮𝗿𝗲 𝗮 𝘀𝘆𝘀𝘁𝗲𝗺 $${\color{#ff0000}osdd-1b}$$ <img src="https://gifcity.carrd.co/assets/images/gallery91/11ba7cd9.gif?v=49efbe4c">
+𝘄𝗲 𝗮𝗿𝗲 𝗮 𝘀𝘆𝘀𝘁𝗲𝗺. osdd-1b
   
   <div>
     <p align="center">
- <img src="https://gifcity.carrd.co/assets/images/gallery01/cbeceb71.gif?v=49efbe4c"> we aren't too fond of doubles, since it could lead to identity issues. preferably for our safety & others- we'll just hide you. <img src="https://gifcity.carrd.co/assets/images/gallery31/9064b27f.gif?v=49efbe4c">
+ we aren't too fond of doubles, since it could lead to identity issues. preferably for our safety, we'll just hide/block you.
     
   <div>
     <p align="center">
-  <img src="https://files.catbox.moe/ihwx2p.webp"/> 𝗵𝗲/𝗵𝗶𝗺/𝗵𝗶𝘀 <img src="https://gifcity.carrd.co/assets/images/gallery291/beabc358.gif?v=49efbe4c">
+𝗵𝗲/𝗵𝗶𝗺 strictly
     
   <div>
     
 <p align="center">
-  <img src="https://files.catbox.moe/932ph8.png" />
+  <img src="https://media1.tenor.com/m/7giYfxCxDaMAAAAC/nasa-nasa-gifs.gif" />
   <div>
     <p align="center">
-  <img src="https://camo.githubusercontent.com/23e812adb92753a9f17a31a013e623b4656450b9e5e0698463e922be9bb3686d/68747470733a2f2f66696c65732e636174626f782e6d6f652f376e363930312e676966"/><img src="https://files.catbox.moe/qvwvoe.gif"/><img src="https://files.catbox.moe/z94axx.webp"/><img src="https://files.catbox.moe/mildgu.png"/><img src="https://files.catbox.moe/4g4b06.png"/>
+  <img src="https://gifcity.carrd.co/assets/images/gallery59/6bc83f44.png?v=20a350bf"/><img src="https://gifcity.carrd.co/assets/images/gallery59/d06f7de3.jpg?v=20a350bf"/><img src="https://gifcity.carrd.co/assets/images/gallery60/e564292e.gif?v=20a350bf"/><img src="https://gifcity.carrd.co/assets/images/gallery59/adafe7dc.png?v=20a350bf"/><img src="https://gifcity.carrd.co/assets/images/gallery59/56630c7e.png?v=20a350bf"/>
 </p>
   <div>
     <p align="center">
-<img src="https://files.catbox.moe/ts4bys.gif"/>  𝗮𝗿𝘁𝗶𝘀𝘁 & 𝗮𝗻𝗶𝗺𝗮𝘁𝗼𝗿 <img src="https://gifcity.carrd.co/assets/images/gallery276/6eb50a2c.gif?v=49efbe4c">
+ 𝗮𝗿𝘁𝗶𝘀𝘁 & 𝗮𝗻𝗶𝗺𝗮𝘁𝗼𝗿
     
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery31/a066e79a.gif?v=49efbe4c">  43k+ ON $${\color{#ff0000}TIKTOK}$$ | 10k+ ON $${\color{#ff0000}YT}$$ <img src="https://gifcity.carrd.co/assets/images/gallery31/77b9d330.gif?v=49efbe4c">
+45k+ ON tiktok | 12k+ ON yt 
 
   <div>
    
 </p>
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery92/f350952d.gif?v=49efbe4c">  $${\color{#ff0000}DNI}$$: proshippers, 13>, basic criteria <img src="https://gifcity.carrd.co/assets/images/gallery11/225f0b76.png?v=49efbe4c">
+ DNI proshippers, 13> & 25+, basic criteria
   </p>
 
 <p align="center">
-      <img src="https://gifcity.carrd.co/assets/images/gallery49/11d94fa3.gif?v=49efbe4c"/>
+      <img src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=20a350bf"/>
 </p>
   </div>
   <p align="center">
-      <img src="https://gifcity.carrd.co/assets/images/gallery210/ddcdeddb.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery14/3c2ad8b9.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery20/30bd7c76.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery21/dd08a950.gif?v=49efbe4c"/>
+      <img src="https://wilardo.crd.co/assets/images/gallery09/26b1d0a9.gif?v=cc97760d"/><img src="https://gifcity.carrd.co/assets/images/gallery23/59b1f665.gif?v=20a350bf"/><img src="https://wilardo.crd.co/assets/images/gallery26/468e7aa3.gif?v=cc97760d"/><img src="https://gifcity.carrd.co/assets/images/gallery23/e3b48440.gif?v=20a350bf"/>
       <p align="center">
  𝗙𝗢𝗥 𝗣𝗢𝗡𝗬𝗧𝗢𝗪𝗡
   <div>
     <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery10/6ff7d3d9.gif?v=49efbe4c">  we're socially anxious <img src="https://gifcity.carrd.co/assets/images/gallery92/4187f0b0.gif?v=49efbe4c">
+we're socially anxious 
   
   <div>
     <p align="center">
-  <img src="https://files.catbox.moe/uzzwjj.webp"/> it is important you w2i because usually we're either spec, making skins, or offtab. <img src="https://gifcity.carrd.co/assets/images/gallery92/a3c39389.png?v=49efbe4c">
+  it is important you w2i because usually we're either spec, making skins, or offtab.
     
   <div>
     <p align="center"> 
-<img src="https://gifcity.carrd.co/assets/images/gallery92/4c2c7770.gif?v=49efbe4c">  do $${\color{#ff0000}not}$$ attempt to roleplay with us. our skins aren't "cosplays". they are alters, we will get uncomfortable & block/hide you <img src="https://gifcity.carrd.co/assets/images/gallery92/5c27a29c.gif?v=49efbe4c">
+our skins aren't cosplays, they're alters & irls, thank you.
   </p>
 
   <div>
     
 <p align="center">
-  <img src="https://i.postimg.cc/Y2QPvNyJ/95.webp" /><img src="https://i.postimg.cc/v8pQsvxk/83.jpg" /><img src="https://media.tenor.com/lCY6RFd8qQQAAAAi/tenna-deltarune.gif"/><img src="https://i.postimg.cc/nrwpjv3j/76.png" /><img src="https://i.postimg.cc/GtjTZSh0/45.gif" />
+  <img src="https://gifcity.carrd.co/assets/images/gallery61/b872dd34.gif?v=20a350bf" /><img src="https://nustuff.carrd.co/assets/images/gallery13/51009c6c.png?v=0a15e1db" /><img src="https://gifcity.carrd.co/assets/images/gallery85/30796f13.gif?v=20a350bf"/><img src="https://64.media.tumblr.com/3877d89b8ee99f3b2f9dc3a23088304a/tumblr_pbb8boDMGJ1xz2nuuo4_100.png" /><img src="https://nustuff.carrd.co/assets/images/gallery05/5ed847e1.jpg?v=0a15e1db" />
 </p>
 <p align="center">
-    <img src="https://gifcity.carrd.co/assets/images/gallery158/9dec4b99.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery14/9abd604f.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery18/e87e8a26.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery20/3b6ff7ee.gif?v=49efbe4c"/>
+    <img src="https://biscuit.crd.co/assets/images/gallery48/a6522d9e.gif?v=edffcd2f"/><img src="https://adriansblinkiecollection.neocities.org/z24.gif"/><img src="https://pix.crd.co/assets/images/gallery09/812f2e92.gif?v=15eb4270"/><img src="https://sillyblinkies.nekoweb.org/blinkies/17776.gif"/>
     </div>
 <p align="center">
     <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=49efbe4c"/>
@@ -117,22 +120,24 @@
  𝗫𝗧𝗥𝗔. 𝗜𝗡𝗙𝗢 [𝟭]
  <div>
    <p align="center">
-<img src="https://files.catbox.moe/lflx25.webp"/> we heavily associate ourselves w/ $${\color{#ff0000}7n7}$$, $${\color{#9a0000}chance}$$, $${\color{#5b0000}deimos}$$, $${\color{#640000}tricky}$$, $${\color{#9a0000}tenna}$$ & $${\color{#ff0000}infected}$$ <img  src="https://gifcity.carrd.co/assets/images/gallery151/e0ca8122.gif?v=49efbe4c">
+delusional attachments: JUICE | 7n7 | deimos | d3rlord3 | dirk strider
    
  <div>
    <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery03/1ee1c3c7.png?v=49efbe4c"> we don't block cosplayers, systems or roleplayers, just kins & irls. $${\color{#ff0000}ONLY}$$ if they make it their entire personality. <img src="https://gifcity.carrd.co/assets/images/gallery01/9e656c08.gif?v=49efbe4c">
+d/a dupes DNI.
 
  <div>
-   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery262/17a7d26c.gif?v=49efbe4c"> 𝘄𝗲 𝗱𝗼 $${\color{#ff0000}not}$$ 𝗶𝗻𝘃𝗮𝗹𝗶𝗱𝗮𝘁𝗲 𝗼𝘁𝗵𝗲𝗿𝘀 𝗶𝗱𝗲𝗻𝘁𝗶𝘁𝗶𝗲𝘀, 𝗶𝘁'𝗱 𝗷𝘂𝘀𝘁 𝗯𝗲 𝗽𝗿𝗲𝗳𝗲𝗿𝗿𝗲𝗱 𝗳𝗼𝗿 𝗢𝗨𝗥 𝗺𝗲𝗻𝘁𝗮𝗹 𝘀𝘁𝗮𝘁𝗲 𝗶𝗳 𝘆𝗼𝘂 𝗸𝗲𝗽𝘁 𝘆𝗼𝘂𝗿 𝗱𝗶𝘀𝘁𝗮𝗻𝗰𝗲. <img src="https://gifcity.carrd.co/assets/images/gallery306/9f931aaa.gif?v=49efbe4c">
+     
+   <p align="center">check my strawpage: https://srdoomspire.straw.page/ (for more info about me)</p>
 
+<div>
+    
   <div>
     <p align="center">
- <img src="https://files.catbox.moe/iiuhv7.webp"/>  $${\color{#ff0000}eng}$$/rus <img src="https://gifcity.carrd.co/assets/images/gallery13/72538ea9.gif?v=49efbe4c">
+ ENG/rus speaker
  </p>
 <p align="center">
-    <img src="https://files.catbox.moe/4nymbn.webp"/><img src="https://files.catbox.moe/362kxo.webp"/><img src="https://files.catbox.moe/d8ekum.webp"/><img src="https://files.catbox.moe/urueio.jpg"/>
+    <img src="https://adriansblinkiecollection.neocities.org/y32.gif"/><img src="https://adriansblinkiecollection.neocities.org/x49.gif"/><img src="https://adriansblinkiecollection.neocities.org/y8.gif"/><img src="https://adriansblinkiecollection.neocities.org/x30.gif"/>
 </p>
     </div>
  <p align="center">
@@ -140,7 +145,7 @@
   <div>
     
 <p align="center">
-  <img src="https://64.media.tumblr.com/c9866be81498de05e3c727f5dfe4300c/28a11c331af8c72a-7a/s250x400/47ffdcf963ead1f1e01dd39c54e3c0f759bd637a.gifv" /><img src="https://files.catbox.moe/vaml5d.gif" /><img src="https://i.postimg.cc/284fxPVz/ezgif-1e8fdde7b8b9f45d.gif" />
+  <img src="https://adriansblinkiecollection.neocities.org/stamps/d79.png" /><img src="https://adriansblinkiecollection.neocities.org/stamps/d92.png" /><img src="https://adriansblinkiecollection.neocities.org/stamps/d33.gif" />
 </p>
   <div>
     <p align="center">
@@ -148,34 +153,34 @@
    
 <div>
   <p align="center">
-<img src="https://files.catbox.moe/0dvz1j.gif"/> we LOVE love weaponry & $${\color{#ff0000}tornadoes}$$ but our #1 interest as of right now is storm-chasing. <img src="https://gifcity.carrd.co/assets/images/gallery272/0759daaa.gif?v=49efbe4c">
+hyperfixation(s): 17776, sfawtde, tornadoes & weaponry.
   
 <div>
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery13/3df1e8a9.gif?v=49efbe4c"> fandoms we're in: 𝗱𝗶𝗲 𝗼𝗳 𝗱𝗲𝗮𝘁𝗵, 𝗳𝗻𝗳, 𝗱𝗲𝗹𝘁𝗮𝗿𝘂𝗻𝗲/𝘂𝗻𝗱𝗲𝗿𝘁𝗮𝗹𝗲, 𝗺𝗮𝗱𝗻𝗲𝘀𝘀 𝗰𝗼𝗺𝗯𝗮𝘁 + 𝗺𝗼𝗿𝗲 <img src="https://gifcity.carrd.co/assets/images/gallery263/ea0fc7e1.gif?v=49efbe4c">
-  
+interests: spongebob, roblox, madcom, fnf, homestuck, ut/dt, mandela catalogue, tadc, law of talos/endzone tournament, object shows & more.
+      
 <div>
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery263/7dc55648.gif?v=49efbe4c"> $${\color{#ff0000}BARELY}$$ into forsaken, only liking a select few of characters & not the game itself. <img src="https://gifcity.carrd.co/assets/images/gallery01/8e05c4a7.gif?v=49efbe4c">
+taken by ‹ binarycircuits 𝟹
 </p>
   
   <div>
     
 <p align="center">
-  <img src="https://64.media.tumblr.com/ea6322a4ab9bd818294a81145be66fc3/58937edb8f512a81-a3/s1280x1920/3df0edcd9e380ac918c06f3c9417d5137fbc2d89.gifv"/><img src="https://64.media.tumblr.com/6cae1d20b5e6566efdb452cb59e4dcac/58937edb8f512a81-49/s1280x1920/06fdd087292cc9b4200410d3e03d997b3cd908b8.png"/><img src="https://64.media.tumblr.com/90b95f9b7bb76c15d7d28f54588fce94/58937edb8f512a81-59/s1280x1920/ca84b568b971094e37d156d28701df6a7dd361b0.gifv"/>
+  <img src="https://adriansblinkiecollection.neocities.org/buttons/a102.jpg"/><img src="https://adriansblinkiecollection.neocities.org/buttons/a122.gif"/><img src="https://adriansblinkiecollection.neocities.org/buttons/a112.gif"/>
 </p>
   <div>
 <p align="center">
 𝙇𝘼𝙎𝙏𝙇𝙔
 <div>
     <p align="center">
-        <img src="https://gifcity.carrd.co/assets/images/gallery20/4009cdef.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery23/1646719d.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery23/9ff03ebd.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery25/4231568a.gif?v=49efbe4c"/>
+        <img src="https://pixelsafari.neocities.org/stamps/baddecisions.png"/><img src="https://pixelsafari.neocities.org/stamps/more/storm.png"/><img src="https://pixelsafari.neocities.org/stamps/truth.png"/><img src="https://pixelsafari.neocities.org/stamps/more/pluto.jpg"/>
   <p align="center">
-<img src="https://files.catbox.moe/62b3p1.gif"/> don't be afraid to just say hi, we won't snipe you just for being nice LOL <img src="https://gifcity.carrd.co/assets/images/gallery262/2b1c3a9c.gif?v=49efbe4c">
+we aren't the greatest with small talk, don't expect much out of us.
 
 <div>
   <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery01/cb80b1a1.png?v=49efbe4c"> js don't be a $${\color{#ff0000}weirdo}$$ <img src="https://gifcity.carrd.co/assets/images/gallery01/dd63e244.gif?v=49efbe4c">
+
 </p>
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery25/cccbc4b9.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery25/dc5ad13b.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery25/6ded2033.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery25/6111d3c7.gif?v=49efbe4c"/>
@@ -183,7 +188,7 @@
   <p align="center">
     </div>
     
-![](https://files.catbox.moe/orzriw.gif) [YT](https://www.youtube.com/channel/UC8GTmLYAm6DaXucaenegu4A) | [TIKTOK](https://www.tiktok.com/@srdoomspire)
+blargg hh
     <div>
     ![](https://komarev.com/ghpvc/?username=srdoomspire&color=000000)
 ![](https://files.catbox.moe/4wxujl.png)
@@ -191,10 +196,10 @@
 </p>
     <div></div>
 <p align="center">
-  <img src="https://gifcity.carrd.co/assets/images/gallery26/2f096aa0.jpg?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery26/95c38f58.png?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery27/665fe374.gif?v=49efbe4c"/><img src="https://gifcity.carrd.co/assets/images/gallery26/6dd56206.gif?v=49efbe4c"/>
+  <img src="https://pixelsafari.neocities.org/blinkies/stargazer2.gif"/><img src="https://pixelsafari.neocities.org/blinkies/citystars.png"/><img src="https://adriansblinkiecollection.neocities.org/z1.gif"/><img src="https://adriansblinkiecollection.neocities.org/z31.gif"/>
     <div>
 <p align="center">
-  <img src="https://media.tenor.com/FGhvX-E8XmgAAAAi/delta-rune-deltarune.gif"/>
+  <img src="https://64.media.tumblr.com/4c03a82113afcc9301f77b9419f4e8cb/0ba0eb494e5c49f6-92/s400x600/cd75a053c0c1adede18240cbc514cfeb76f50950.pnj"/>
 </p>
 <p align="center"/>
-    <img src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=49efbe4c"/>
+    <img src="https://64.media.tumblr.com/10cd2f40491cd68f477ed17e20a332cc/a1e905b5d5897aa8-5e/s500x750/f6e0cce0b431905ebad2e3d308a0129de5ab734d.gifv"/>

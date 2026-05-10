@@ -29,7 +29,7 @@ we fb & follow people if we think your github looks cool
 </p>
   </div>
   <p align="center">
-call us doom/JUICE/nico, or sol.
+call us doom/JUICE/nico, michael or sol.
   
   <div>
     

@@ -102,7 +102,7 @@ we're socially anxious
     
   <div>
     <p align="center"> 
-our skins aren't cosplays, they're alters & irls, thank you.
+our skins aren't cosplays, they're alters, thank you.
   </p>
 
   <div>
@@ -120,7 +120,7 @@ our skins aren't cosplays, they're alters & irls, thank you.
  𝗫𝗧𝗥𝗔. 𝗜𝗡𝗙𝗢 [𝟭]
  <div>
    <p align="center">
-delusional attachments: JUICE | 7n7 | deimos | d3rlord3 | dirk strider
+delusional attachments: JUICE | 7n7 | deimos | d3rlord3 | green (avm) | spokeishere
    
  <div>
    <p align="center">

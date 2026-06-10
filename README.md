@@ -74,7 +74,7 @@ srdoomspire on (most) platforms
     
   <div>
     <p align="center">
-45k+ ON tiktok | 12k+ ON yt 
+47k+ ON tiktok | 13k+ ON yt 
 
   <div>
    

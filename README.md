@@ -29,7 +29,7 @@ we fb & follow people if we think your github looks cool
 </p>
   </div>
   <p align="center">
-call us doom/JUICE/nico, michael or sol.
+call us doom/JUICE/nico, michael or dark.
   
   <div>
     
@@ -120,7 +120,7 @@ our skins aren't cosplays, they're alters, thank you.
  𝗫𝗧𝗥𝗔. 𝗜𝗡𝗙𝗢 [𝟭]
  <div>
    <p align="center">
-delusional attachments: JUICE | 7n7 | deimos | d3rlord3 | green (avm) | spokeishere
+delusional attachments: JUICE | 7n7 | the dark lord (ava) | green (ava/m) | victim (ava)
    
  <div>
    <p align="center">

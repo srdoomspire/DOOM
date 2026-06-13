@@ -153,7 +153,7 @@ d/a dupes DNI.
    
 <div>
   <p align="center">
-hyperfixation(s): 17776, sfawtde, tornadoes & weaponry.
+hyperfixation(s): 17776, animation vs, tornadoes & weaponry.
   
 <div>
   <p align="center">

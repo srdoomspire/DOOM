@@ -120,7 +120,7 @@ our skins aren't cosplays, they're alters, thank you.
  𝗫𝗧𝗥𝗔. 𝗜𝗡𝗙𝗢 [𝟭]
  <div>
    <p align="center">
-delusional attachments: JUICE | 7n7 | the dark lord (ava) | green (ava/m) | victim (ava)
+delusional attachments are on strawpage. PLEASE check that before you int.
    
  <div>
    <p align="center">

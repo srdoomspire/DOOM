@@ -120,7 +120,7 @@ our skins aren't cosplays, they're alters, thank you.
  𝗫𝗧𝗥𝗔. 𝗜𝗡𝗙𝗢 [𝟭]
  <div>
    <p align="center">
-delusional attachments are on strawpage. PLEASE check that before you int.
+c-links: TSC, TDL, "JUICE", wifies & green.
    
  <div>
    <p align="center">
